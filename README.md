@@ -13,5 +13,5 @@
 
   
   
-<a href="https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?dghob" target="_blank"><img width="30%" src="/anh/vd1.jpg"></a>
+<a href="https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?dghob" target="_blank"><img width="50%" src="/anh/vd1.jpg"></a>
 <p>短视频 : 伪火骗局--看中共如何造假</p>
