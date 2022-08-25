@@ -1,3 +1,3 @@
 
 
-  ![enter image description here](/anh/gu.jpg) center 
+                                                            ![enter image description here](/anh/gu.jpg) 
