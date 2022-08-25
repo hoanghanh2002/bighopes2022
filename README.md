@@ -7,3 +7,5 @@
 <a name="6" id="6" target="_blank"></a> <span id="6"></span>
 <a name="7" id="7" target="_blank"></a> <span id="7"></span>
 <a id="user-content-1" href="#1">
+<div align="center">
+<img src="/anh/gu.jpg"><br>
