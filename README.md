@@ -11,5 +11,4 @@
 <img src="/anh/gu.jpg"><br>
   
   
-<p><details><summary><a href="https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?nkqzs" target="_blank">短视频 : 伪火骗局--看中共如何造假</a> :arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?hcqiy" title="分享本平台"></img><br>
+<a href="https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?dghob" target="_blank"><img src="https://raw.githubusercontent.com/ychojm359/vd/master/t/210b/wf595.jpg"></a>
