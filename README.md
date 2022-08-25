@@ -11,4 +11,4 @@
 <img src="/anh/gu.jpg"><br>
   
   
-<a href="https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?dghob" target="_blank"><img src="https://raw.githubusercontent.com/ychojm359/vd/master/t/210b/wf595.jpg"></a>
+<a href="https://gitlab.com/Chassidycg3/vdzfzx/raw/master/public/zfzx.webm?dghob" target="_blank"><img width="50%" src="/anh/vd1.jpg"></a>
