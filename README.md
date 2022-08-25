@@ -11,4 +11,4 @@
 <img src="/anh/gu.jpg"><br>
   
   
-<a href="https://gitlab.com/dhwduqwhd/vdYongHeng-360p/raw/master/public/YongHeng-360p.webm?vwfhc" target="_blank"><img width="50%" height="" src="https://raw.githubusercontent.com/ychojm359/vd/master/t/210b/YongHeng-360p.jpg" title="电影：永恒的五十分钟　　　　　　" alt="电影：永恒的五十分钟　　　　　　"></a>
+<a href="https://munmun.cyou/index.php/s/97c7TTXWmPTeN28" target="_blank"><img width="30%" height="" src="https://munmun.cyou/index.php/s/97c7TTXWmPTeN28.jpg" title="电影：永恒的五十分钟　　　　　　" alt="电影：永恒的五十分钟　　　　　　"></a>
