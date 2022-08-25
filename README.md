@@ -11,4 +11,4 @@
 <img src="/anh/gu.jpg"><br>
   
   
-<a href="https://munmun.cyou/index.php/s/97c7TTXWmPTeN28" target="_blank"><img width="30%" height="" src="https://munmun.cyou/index.php/s/97c7TTXWmPTeN28.jpg" title="电影：永恒的五十分钟　　　　　　" alt="电影：永恒的五十分钟　　　　　　"></a>
+<a href="https://youtu.be/9qbVz4YS7A4" target="_blank"><img width="30%" height="" src="https://youtu.be/9qbVz4YS7A4.jpg" title="电影：永恒的五十分钟　　　　　　" alt="电影：永恒的五十分钟　　　　　　"></a>
