@@ -15,3 +15,5 @@
   
 <a href="https://munmun.cyou/index.php/s/ydXgtTSisw6s9GY" target="_blank"><img width="70%" src="/anh/ha.jpg"></a>
 <p> 世界上有多少未解之謎？</p>
+<a href="https://munmun.cyou/index.php/s/7JacgWWNqGeXF6c" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgccc.jpg"></a>
+<p> 徐州政府四改其口 八孩母親無處伸張.</p>
