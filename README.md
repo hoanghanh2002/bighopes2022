@@ -33,3 +33,4 @@
 <p> 你知道“藏字石”吗？——预示中国命运的石头</p>
 <img src="/anh/anhloidan.jpeg"><br>
 <i>  内容摘自 DKN </i> 
+<img src="/anh/Screenshot 2022-08-26 160343.jpg"><br>
