@@ -19,17 +19,17 @@
 <p> 徐州政府四改其口 八孩母親無處伸張.</p>
 <a href="https://munmun.cyou/index.php/s/ncY8QZbNqTNKJnS" target="_blank"><img width="70%" src="/anh/jk.jpg"></a>
 <p> 湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜.</p>
-<a href="https://munmun.cyou/index.php/s/aiMqCgBaJ6TNQG8"><img width="70%" src="/anh/photo_2022-08-26_14-28-u56juj5.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/aiMqCgBaJ6TNQG8" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-u56juj5.jpg"></a>
 <p> 高幹子弟簽證被拒 驚動高層.</p>
-<a href="https://munmun.cyou/index.php/s/ELXc88QEZ8DRYyM"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgsf.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/ELXc88QEZ8DRYyM" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgsf.jpg"></a>
 <p> 血色天空再現！ 天災人禍將臨？ 末班車將啟動？</p>
-<a href="https://munmun.cyou/index.php/s/AiFHH2LtJgzMe4D"><img width="70%" src="/anh/irhtoqih.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/AiFHH2LtJgzMe4D" target="_blank"><img width="70%" src="/anh/irhtoqih.jpg"></a>
 <p> 瘟疫滅中共 上天在選人</p>  
-<a href="https://munmun.cyou/index.php/s/fYRsb78SC9wptzc"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgegewh.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/fYRsb78SC9wptzc" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgegewh.jpg"></a>
 <p>从小到大 我们排过的那些长长的队 </p>    
-<a href="https://munmun.cyou/index.php/s/mY36kYPyAai97j5"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgw3wqgw.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/mY36kYPyAai97j5" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgw3wqgw.jpg"></a>
 <p> 為什麼說 “中共不等於中國”？</p>
-<a href="https://munmun.cyou/index.php/s/iDCHPGY4xR5YoAn"><img width="70%" src="/anh/photo_2022-08-26_16-35-02.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/iDCHPGY4xR5YoAn" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_16-35-02.jpg"></a>
 <p> 你知道“藏字石”吗？——预示中国命运的石头</p>
  <img src="/anh/haha.jpg"><br> 
 <img src="/anh/anhloidan.jpeg"><br>
@@ -37,10 +37,10 @@
 <img src="/anh/Screenshot 2022-08-26 160343.jpg"><br>
 <p> 朋友，人在做，天在看！你曾经发誓加入它的组织，为它献出生命。所以你现在必需说，‘我要退出所有党，团，队组织。然后请你在下方填写您的化名和退出什么组织，请您速帮助您的亲友也尽快退出来 ，祝您和您的家人渡过难关！如果已经有法轮功学员帮你退过了，您无需再填写表格，您只需帮助你的亲人填写三退表格即可！</p>
 <p><a href="https://github.com/hwpejs398/ntdtv/blob/master/gb/2022/08/25/a103510619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/请你按这里选择化名>-009fcc?logoWidth=1" title="请你按这里选择化名" alt="请你按这里选择化名"></a></p>
-<p><a href="https://munmun.cyou/index.php/s/FiMqYorfbeJ9HTX" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/请点击按钮领取平安符>-009fcc?logoWidth=1" title="请点击按钮领取平安符" alt="请点击按钮领取平安符"></a></p>
+<p><a href="https://munmun.cyou/index.php/s/FiMqYorfbeJ9HTX" target=_blank"><img width="330" height="30" src="https://img.shields.io/badge/请点击按钮领取平安符>-009fcc?logoWidth=1" title="请点击按钮领取平安符" alt="请点击按钮领取平安符"></a></p>
 <img src="/anh/haha.jpg"><br> 
 <img src="/anh/po.jpg"><br> 
-<a href="https://munmun.cyou/index.php/s/SQjRCmxMyAyPSNT"><img width="70%" src="/anh/rsihy.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/SQjRCmxMyAyPSNT" target="_blank"><img width="70%" src="/anh/rsihy.jpg"></a>
 <p>大法洪传 </p>
-<a href="https://munmun.cyou/index.php/s/saFH8nmD4yEPMMw"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/saFH8nmD4yEPMMw" target="_blank"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
 <p>顶级艺术. Shen Yun</p> 
