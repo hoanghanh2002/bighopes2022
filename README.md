@@ -17,3 +17,5 @@
 <p> 世界上有多少未解之謎？</p>
 <a href="https://munmun.cyou/index.php/s/7JacgWWNqGeXF6c" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgccc.jpg"></a>
 <p> 徐州政府四改其口 八孩母親無處伸張.</p>
+<a href="https://munmun.cyou/index.php/s/ncY8QZbNqTNKJnS" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgrrwr.jpg"></a>
+<p> 湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜.</p>
