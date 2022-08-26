@@ -31,6 +31,7 @@
 <p> 為什麼說 “中共不等於中國”？</p>
 <a href="https://munmun.cyou/index.php/s/iDCHPGY4xR5YoAn"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgowiyt9po.jpg"></a>
 <p> 你知道“藏字石”吗？——预示中国命运的石头</p>
+ <img src="/anh/haha.jpg"><br> 
 <img src="/anh/anhloidan.jpeg"><br>
 <i>  内容摘自 DKN </i> 
 <img src="/anh/Screenshot 2022-08-26 160343.jpg"><br>
