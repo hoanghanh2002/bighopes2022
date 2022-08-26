@@ -40,3 +40,7 @@
 <p><a href="https://munmun.cyou/index.php/s/FiMqYorfbeJ9HTX" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/请点击按钮领取平安符>-009fcc?logoWidth=1" title="请点击按钮领取平安符" alt="请点击按钮领取平安符"></a></p>
 <img src="/anh/haha.jpg"><br> 
 <img src="/anh/po.jpg"><br> 
+<a href="https://munmun.cyou/index.php/s/SQjRCmxMyAyPSNT"><img width="70%" src="/anh/rsihy.jpg"></a>
+<p>大法洪传 </p>
+<a href="https://munmun.cyou/index.php/s/saFH8nmD4yEPMMw"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
+<p>顶级艺术. Shen Yun</p> 
