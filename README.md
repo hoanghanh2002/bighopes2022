@@ -13,5 +13,5 @@
 
  <img src="/anh/haha.jpg"><br> 
   
-<a href="https://munmun.cyou/index.php/s/97c7TTXWmPTeN28" target="_blank"><img width="70%" src="/anh/vd1.jpg"></a>
+<a href="https://munmun.cyou/index.php/s/ydXgtTSisw6s9GY" target="_blank"><img width="70%" src="/anh/ha.jpg"></a>
 <p> 世界上有多少未解之謎？</p>
