@@ -21,3 +21,13 @@
 <p> 湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜.</p>
 <a href="https://munmun.cyou/index.php/s/aiMqCgBaJ6TNQG8"><img width="70%" src="/anh/photo_2022-08-26_14-28-u56juj5.jpg"></a>
 <p> 高幹子弟簽證被拒 驚動高層.</p>
+<a href="https://munmun.cyou/index.php/s/ELXc88QEZ8DRYyM"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgsf.jpg"></a>
+<p> 血色天空再現！ 天災人禍將臨？ 末班車將啟動？</p>
+<a href="https://munmun.cyou/index.php/s/AiFHH2LtJgzMe4D"><img width="70%" src="/anh/irhtoqih.jpg"></a>
+<p> 瘟疫滅中共 上天在選人</p>  
+<a href="https://munmun.cyou/index.php/s/fYRsb78SC9wptzc"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgegewh.jpg"></a>
+<p>从小到大 我们排过的那些长长的队 </p>    
+<a href="https://munmun.cyou/index.php/s/mY36kYPyAai97j5"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgw3wqgw.jpg"></a>
+<p> 為什麼說 “中共不等於中國”？</p>
+<a href="https://munmun.cyou/index.php/s/iDCHPGY4xR5YoAn"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgowiyt9po.jpg"></a>
+<p> 你知道“藏字石”吗？——预示中国命运的石头</p>
