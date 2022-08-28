@@ -22,7 +22,7 @@
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd4.mp4" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-u56juj5.jpg"></a>
 <p> 高幹子弟簽證被拒 驚動高層.</p>
  <img src="/anh/haha.jpg"><br> 
-<a href="https://munmun.cyou/index.php/s/ELXc88QEZ8DRYyM" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgsf.jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd7.mp4" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgsf.jpg"></a>
 <p> 血色天空再現！ 天災人禍將臨？ 末班車將啟動？</p>
 <a href="https://munmun.cyou/index.php/s/AiFHH2LtJgzMe4D" target="_blank"><img width="70%" src="/anh/irhtoqih.jpg"></a>
 <p> 瘟疫滅中共 上天在選人</p>  
