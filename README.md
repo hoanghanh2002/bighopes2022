@@ -40,9 +40,9 @@
 <img src="/anh/haha.jpg"><br> 
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd12.mp4" target="_blank"><img width="70%" src="/anh/vd12.jpg"></a>
 <p>有足够证据证明天安门自焚事件完全是假的 </p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/tc1400.mp4" target="_blank"><img width="70%" src="/anh/tc1400.ipg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/tc1400.mp4" target="_blank"><img width="70%" src="/anh/tc1400.jpg"></a>
 <p>过去1400人死亡的真相已经澄清。 </p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/sukien254.mp4" target="_blank"><img width="70%" src="/anh/254.ipg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/sukien254.mp4" target="_blank"><img width="70%" src="/anh/254.jpg"></a>
 <p>你知道4月25日的惊天事件是什么吗？ </p>
  <img src="/anh/haha.jpg"><br> 
  
