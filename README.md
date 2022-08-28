@@ -22,17 +22,30 @@
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd4.mp4" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-u56juj5.jpg"></a>
 <p> 高幹子弟簽證被拒 驚動高層.</p>
  <img src="/anh/haha.jpg"><br> 
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd7.mp4" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgsf.jpg"></a>
-<p> 血色天空再現！ 天災人禍將臨？ 末班車將啟動？</p>
-<a href="https://munmun.cyou/index.php/s/AiFHH2LtJgzMe4D" target="_blank"><img width="70%" src="/anh/irhtoqih.jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd7.mp4" target="_blank"><img width="70%" src="/anh/vd7.jpg"></a>
+<p>从小到大 我们排过的那些长长的队 </p>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/d6.mp4" target="_blank"><img width="70%" src="/anh/vd6.jpg"></a>
 <p> 瘟疫滅中共 上天在選人</p>  
-<a href="https://munmun.cyou/index.php/s/fYRsb78SC9wptzc" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgegewh.jpg"></a>
-<p>从小到大 我们排过的那些长长的队 </p>    
-<a href="https://munmun.cyou/index.php/s/mY36kYPyAai97j5" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-47.jpgw3wqgw.jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd5.mp4" target="_blank"><img width="70%" src="/anh/vd5.jpg"></a>
+<p>血色天空再現！ 天災人禍將臨？ 末班車將啟動？ </p>  
+<img src="/anh/haha.jpg"><br> 
+<a href=https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd8.mp4"" target="_blank"><img width="70%" src="/anh/vd8.jpg"></a>
 <p> 為什麼說 “中共不等於中國”？</p>
-<a href="https://munmun.cyou/index.php/s/iDCHPGY4xR5YoAn" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_16-35-02.jpg"></a>
-<p> 你知道“藏字石”吗？——预示中国命运的石头</p>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd9.MP4" target="_blank"><img width="70%" src="/anh/vd9.jpg"></a>
+<p>  谁是反神反宗教的组织？</p>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd10.mp4" target="_blank"><img width="70%" src="/anh/vd10.jpg"></a>
+<p> 中共驚天祕密 國人身臨險境！</p>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4.mp4" target="_blank"><img width="70%" src="/anh/vd14(2).jpg"></a>
+<p>你知道“藏字石”吗？——预示中国命运的石头 </p>
+<img src="/anh/haha.jpg"><br> 
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd12.mp4" target="_blank"><img width="70%" src="/anh/vd12.jpg"></a>
+<p>有足够证据证明天安门自焚事件完全是假的 </p>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/tc1400.mp4" target="_blank"><img width="70%" src="/anh/tc1400.ipg"></a>
+<p>过去1400人死亡的真相已经澄清。 </p>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/sukien254.mp4" target="_blank"><img width="70%" src="/anh/254.ipg"></a>
+<p>你知道4月25日的惊天事件是什么吗？ </p>
  <img src="/anh/haha.jpg"><br> 
+ 
 <img src="/anh/anhloidan.jpeg"><br>
 <i>  内容摘自 DKN </i> 
 <img src="/anh/Screenshot 2022-08-26 160343.jpg"><br>
