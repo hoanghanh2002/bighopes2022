@@ -13,7 +13,7 @@
 
  <img src="/anh/haha.jpg"><br> 
 
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd1.mp4" target="_blank"><img width="70%" src="/anh/vd1.jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd1.mp4" target="_blank"><img width="70%" src="/anh/254.jpg"></a>
 <p> 世界上有多少未解之謎？</p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/shenyun1.mp4" target="_blank"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
 <p> 顶级艺术. Shen Yun</p>
