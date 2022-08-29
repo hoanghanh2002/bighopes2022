@@ -29,13 +29,13 @@
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd5.mp4" target="_blank"><img width="70%" src="/anh/vd5.jpg"></a>
 <p>血色天空再現！ 天災人禍將臨？ 末班車將啟動？ </p>  
 <img src="/anh/haha.jpg"><br> 
-<a href=https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd8.mp4"" target="_blank"><img width="70%" src="/anh/vd8.jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd8.mp4" target="_blank"><img width="70%" src="/anh/vd8.jpg"></a>
 <p> 為什麼說 “中共不等於中國”？</p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd9.MP4" target="_blank"><img width="70%" src="/anh/vd9.jpg"></a>
 <p>  谁是反神反宗教的组织？</p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd10.mp4" target="_blank"><img width="70%" src="/anh/vd10.jpg"></a>
 <p> 中共驚天祕密 國人身臨險境！</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4.mp4" target="_blank"><img width="70%" src="/anh/vd14(2).jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4" target="_blank"><img width="70%" src="/anh/vd14(2).jpg"></a>
 <p>你知道“藏字石”吗？——预示中国命运的石头 </p>
 <img src="/anh/haha.jpg"><br> 
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd12.mp4" target="_blank"><img width="70%" src="/anh/vd12.jpg"></a>
