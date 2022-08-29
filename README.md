@@ -11,10 +11,10 @@
 <img src="/anh/gu.jpg"><br>
   
 
- <img src="/anh/haha.jpg"><br> 
-
+<img src="/anh/haha.jpg"><br> 
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd1.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 世界上有多少未解之謎？-009fcc?logoWidth=1" title="视频: 世界上有多少未解之謎？" alt="视频: 世界上有多少未解之謎？"></a></p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd1.mp4" target="_blank"><img width="70%" src="/anh/vd1.jpg"></a>
-<p> 世界上有多少未解之謎？</p>
+<p>视频: 世界上有多少未解之謎？</p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/shenyun1.mp4" target="_blank"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
 <p> 顶级艺术. Shen Yun</p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd3.mp4" target="_blank"><img width="70%" src="/anh/jk.jpg"></a>
