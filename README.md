@@ -24,18 +24,16 @@
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd8.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 為什麼說 “中共不等於中國”？ -009fcc?logoWidth=1" title="视频: 為什麼說 “中共不等於中國”？ "></a></p>  
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd9.MP4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:  谁是反神反宗教的组织？ -009fcc?logoWidth=1" title="视频:  谁是反神反宗教的组织？ "></a></p>  
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd10.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:  中共驚天祕密 國人身臨險境！ -009fcc?logoWidth=1" title="视频:  中共驚天祕密 國人身臨險境！ "></a></p>  
-
-
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4" target="_blank"><img width="70%" src="/anh/vd14.jpg"></a>
-<p>你知道“藏字石”吗？——预示中国命运的石头 </p>
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 你知道“藏字石”吗？——预示中国命运的石头 -009fcc?logoWidth=1" title="视频:  你知道“藏字石”吗？——预示中国命运的石头 "></a></p>  
 <img src="/anh/haha.jpg"><br> 
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd12.mp4" target="_blank"><img width="70%" src="/anh/vd12.jpg"></a>
-<p>有足够证据证明天安门自焚事件完全是假的 </p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/tc1400.mp4" target="_blank"><img width="70%" src="/anh/tc1400.jpg"></a>
-<p>过去1400人死亡的真相已经澄清。 </p>
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd12.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 有足够证据证明天安门自焚事件完全是假的 -009fcc?logoWidth=1" title="视频: 有足够证据证明天安门自焚事件完全是假的 "></a></p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/tc1400.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 过去1400人死亡的真相已经澄清。 -009fcc?logoWidth=1" title="视频: 过去1400人死亡的真相已经澄清。"></a></p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/sukien254.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 你知道4月25日的惊天事件是什么吗？ -009fcc?logoWidth=1" title="视频: 你知道4月25日的惊天事件是什么吗？"></a></p>  
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/sukien254.mp4" target="_blank"><img width="70%" src="/anh/254.jpg"></a>
-<p>你知道4月25日的惊天事件是什么吗？ </p>
+<p>你知道4月25日的惊天事件是什么吗 ? </p>
+  
 <img src="/anh/haha.jpg"><br>
+  
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/va1.MP4" target="_blank"><img width="70%" src="/anh/va1.jpg"></a>
 <p> 大難中誰能得救？穿越古今的神話 </p> 
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/va2.mp4" target="_blank"><img width="70%" src="/anh/va2.jpg"></a>
