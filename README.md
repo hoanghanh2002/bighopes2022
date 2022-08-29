@@ -13,28 +13,19 @@
 
 <img src="/anh/haha.jpg"><br> 
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd1.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 世界上有多少未解之謎？-009fcc?logoWidth=1" title="视频: 世界上有多少未解之謎？" alt="视频: 世界上有多少未解之謎？"></a></p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd1.mp4" target="_blank"><img width="70%" src="/anh/vd1.jpg"></a>
-<p>视频: 世界上有多少未解之謎？</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/shenyun1.mp4" target="_blank"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
-<p> 顶级艺术. Shen Yun</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd3.mp4" target="_blank"><img width="70%" src="/anh/jk.jpg"></a>
-<p> 湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜.</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd4.mp4" target="_blank"><img width="70%" src="/anh/photo_2022-08-26_14-28-u56juj5.jpg"></a>
-<p> 高幹子弟簽證被拒 驚動高層.</p>
- <img src="/anh/haha.jpg"><br> 
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd7.mp4" target="_blank"><img width="70%" src="/anh/vd7.jpg"></a>
-<p>从小到大 我们排过的那些长长的队 </p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/d6.mp4" target="_blank"><img width="70%" src="/anh/vd6.jpg"></a>
-<p> 瘟疫滅中共 上天在選人</p>  
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd5.mp4" target="_blank"><img width="70%" src="/anh/vd5.jpg"></a>
-<p>血色天空再現！ 天災人禍將臨？ 末班車將啟動？ </p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/shenyun1.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 顶级艺术. Shen Yun -009fcc?logoWidth=1" title="视频: 顶级艺术. Shen Yun" alt="视频:  顶级艺术. Shen Yun"></a></p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd3.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜  -009fcc?logoWidth=1" title="视频: 湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜" alt="视频:  湖北器官販賣 又一例：9歲女童被擄走殺害，器官被盜 "></a></p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd4.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 高幹子弟簽證被拒 驚動高層-009fcc?logoWidth=1" title="视频: 高幹子弟簽證被拒 驚動高層" alt="视频: 高幹子弟簽證被拒 驚動高層"></a></p>
+<img src="/anh/haha.jpg"><br>   
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd7.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 从小到大 我们排过的那些长长的队-009fcc?logoWidth=1" title="视频: 从小到大 我们排过的那些长长的队" alt="视频: 从小到大 我们排过的那些长长的队"></a></p>
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/d6.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 瘟疫滅中共 上天在選人-009fcc?logoWidth=1" title="视频: 瘟疫滅中共 上天在選人" alt="视频: 瘟疫滅中共 上天在選人 "></a></p>
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd5.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 血色天空再現！ 天災人禍將臨？ 末班車將啟動？ -009fcc?logoWidth=1" title="视频: 血色天空再現！ 天災人禍將臨？ 末班車將啟動？"></a></p>
 <img src="/anh/haha.jpg"><br> 
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd8.mp4" target="_blank"><img width="70%" src="/anh/vd8.jpg"></a>
-<p> 為什麼說 “中共不等於中國”？</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd9.MP4" target="_blank"><img width="70%" src="/anh/vd9.jpg"></a>
-<p>  谁是反神反宗教的组织？</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd10.mp4" target="_blank"><img width="70%" src="/anh/vd10.jpg"></a>
-<p> 中共驚天祕密 國人身臨險境！</p>
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd8.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 為什麼說 “中共不等於中國”？ -009fcc?logoWidth=1" title="视频: 為什麼說 “中共不等於中國”？ "></a></p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd9.MP4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:  谁是反神反宗教的组织？ -009fcc?logoWidth=1" title="视频:  谁是反神反宗教的组织？ "></a></p>  
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd10.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:  中共驚天祕密 國人身臨險境！ -009fcc?logoWidth=1" title="视频:  中共驚天祕密 國人身臨險境！ "></a></p>  
+
+
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4" target="_blank"><img width="70%" src="/anh/vd14.jpg"></a>
 <p>你知道“藏字石”吗？——预示中国命运的石头 </p>
 <img src="/anh/haha.jpg"><br> 
