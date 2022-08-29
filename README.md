@@ -35,7 +35,7 @@
 <p>  谁是反神反宗教的组织？</p>
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd10.mp4" target="_blank"><img width="70%" src="/anh/vd10.jpg"></a>
 <p> 中共驚天祕密 國人身臨險境！</p>
-<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4" target="_blank"><img width="70%" src="/anh/vd14(2).jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd14.mp4" target="_blank"><img width="70%" src="/anh/vd14.jpg"></a>
 <p>你知道“藏字石”吗？——预示中国命运的石头 </p>
 <img src="/anh/haha.jpg"><br> 
 <a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/vd12.mp4" target="_blank"><img width="70%" src="/anh/vd12.jpg"></a>
