@@ -60,7 +60,7 @@
 <p><summary><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/9%E4%B8%AA%E7%9C%9F.mp4">请点击按钮领取平安符</a>&nbsp;&nbsp;&nbsp;&nbsp;</p></summary>
 <img src="/anh/haha.jpg"><br> 
 
-<a href="https://munmun.cyou/index.php/s/SQjRCmxMyAyPSNT" target="_blank"><img width="70%" src="/anh/rsihy.jpg"></a>
+<a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/dp1.mp4" target="_blank"><img width="70%" src="/anh/rsihy.jpg"></a>
 <p>大法洪传 </p>
 <a href="https://munmun.cyou/index.php/s/saFH8nmD4yEPMMw" target="_blank"><img width="70%" src="/anh/iu4t2ui82ut.jpg"></a>
 <p>顶级艺术. Shen Yun</p> 
