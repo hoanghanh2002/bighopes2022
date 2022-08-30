@@ -31,6 +31,7 @@
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/sukien254.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 你知道4月25日的惊天事件是什么吗？ -009fcc?logoWidth=1" title="视频: 你知道4月25日的惊天事件是什么吗？"></a></p>  
   
 <img src="/anh/haha.jpg"><br>
+<p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/anhloidan.jpeg" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/大纪元宣布-yellow?logoWidth=1" title="大纪元宣布 " alt="大纪元宣布 "></a></p>
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/va1.MP4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 大難中誰能得救？穿越古今的神話  -009fcc?logoWidth=1" title="视频: 大難中誰能得救？穿越古今的神話 "></a></p>  
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/va2.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 你知道為何要退出黨，團，隊組織？   -009fcc?logoWidth=1" title="视频: 你知道為何要退出黨，團，隊組織？ "></a></p>     
 <p><a href="https://gitlab.com/thelightofhope/bighopes/-/raw/main/t2.mp4 " target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 追查國際主席汪志遠：四億三退，代表中國全民拋棄了中共邪黨 -009fcc?logoWidth=1" title="视频: 追查國際主席汪志遠：四億三退，代表中國全民拋棄了中共邪黨"></a></p> 
